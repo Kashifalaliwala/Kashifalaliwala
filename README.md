@@ -6,5 +6,4 @@
 - 💬 Ask me about Android and Flutter
 - 📫 How to reach me: [Stack Overflow](https://stackoverflow.com/users/8302360/kashifa?tab=profile), [LinkedIn](https://www.linkedin.com/in/kashifa-laliwala)
 - 😄 Pronouns: She | Her
-- :art: Resin Art
-- ⚡ Fun fact: 
+- :art: Resin Artist [Instagram](https://www.instagram.com/resincraftsbykashifa/)
